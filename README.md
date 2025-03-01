@@ -1,4 +1,4 @@
-<p align="center" width="100%">
-    <img src="https://i.pinimg.com/736x/fa/b4/56/fab4562ab6deee932b71ed43a1e1b00a.jpg"> 
+<p align="center">
+    <img src="https://i.pinimg.com/736x/88/aa/d3/88aad38902f8ac7c2295898fab682244.jpg"> 
 </p>
 
