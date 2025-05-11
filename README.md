@@ -3,7 +3,7 @@
 
 # BE MY FRIEND RIGHT NOW!! WHISPER TO ME LETS BE MOOTS 
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/90f1651f-6c77-4d56-af71-e29391be5c1d" width="400" />
+  <video src="https://github.com/user-attachments/assets/19dcaef1-c8b3-40e2-949f-07cef15a4cf1" width="400" />
 </div>
 
 
