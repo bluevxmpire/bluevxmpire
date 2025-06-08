@@ -2,18 +2,15 @@
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=000000"> 
 <p align="center" 
- <p align="center"><strong> edits i like of my favs .. credit to all
+ <p align="center"><strong> "please..rememeber me.."
 </p>
 <div align="center">
-  <video src="https://github.com/user-attachments/assets/cfa5b148-59cf-4e0e-a299-a8771be64655" width="400" />
-      </div>
-       <div align="center">
-    <video src="https://github.com/user-attachments/assets/44613343-de90-44ab-a111-fecc552d95a4" width="400" />
-</div>
+  <video src="https://github.com/user-attachments/assets/aa7c437a-0493-4c0c-9228-3a2bea635de6" width="50" />
+       </div>
+      <p align="center" width="100%">
+    <img src="https://github.com/user-attachments/assets/9899f2ab-9626-40c1-b5f4-825f4a4f3556"> 
+     </p>
 
-  <div align="center">
-    <video src="https://github.com/user-attachments/assets/9c258978-8daf-484c-a92d-8e9041904347" width="400" />
-</div>
 
 
 
