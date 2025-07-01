@@ -2,7 +2,7 @@
 <p align="center" width="100%">
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=592436"> 
 <p align="center" 
- <p align="center"><strong> "yyyeehhaaw!."
+ <p align="center"><strong> mama skylar feed me
 </p>
      <p align="center" width="1000">
     <img src="https://github.com/user-attachments/assets/3e053dd9-0038-4a20-ad78-8b27378dc94f" > 
