@@ -2,7 +2,7 @@
 <p align="center" width="100%">
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=592436"> 
 <p align="center" 
- <p align="center"><strong> "hyungg neuuu faerm with mee!"
+ <p align="center"><strong> "hyungg neuuu faarm with mee!"
 </p>
      <p align="center" width="1000">
     <img src="https://github.com/user-attachments/assets/6fe82463-6aa7-446e-a9d1-513f786b497f" > 
