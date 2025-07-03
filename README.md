@@ -5,7 +5,7 @@
  <p align="center"><strong> mama skylar feed me
 </p>
      <p align="center" width="1000">
-    <img src="https://github.com/user-attachments/assets/3e053dd9-0038-4a20-ad78-8b27378dc94f" > 
+    <img src="https://github.com/user-attachments/assets/6fe82463-6aa7-446e-a9d1-513f786b497f" > 
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
