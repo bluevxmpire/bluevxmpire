@@ -1,11 +1,11 @@
 
 <p align="center" width="100%">
-   <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=592436"> 
+   <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
 <p align="center" 
- <p align="center"><strong> "hyungg neuuu faarm with mee!"
+ <p align="center"><strong> "sunday" , yes .
 </p>
      <p align="center" width="1000">
-    <img src="https://github.com/user-attachments/assets/6fe82463-6aa7-446e-a9d1-513f786b497f" > 
+    <img src="https://64.media.tumblr.com/745d3b22af60345a4f8ab90235e27e1d/984fb0ea4d8d92a0-21/s400x600/c1bfa73ffc2228e0790e5baa2c9fe397c33ec065.gifv" > 
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
