@@ -3,9 +3,9 @@
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
 <p align="center" 
  <p align="center"><strong> vaasshhhuuu!!!! 
-</p>
+ </p>
      <p align="center" >
-    <video src="https://github.com/user-attachments/assets/bbf74a5c-f4ab-403b-ad47-9307034874cd"> 
+    <video src="https://github.com/user-attachments/assets/9c33f309-ff7c-46a9-85d7-f3ed47d84c91"> 
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
