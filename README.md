@@ -2,10 +2,10 @@
 <p align="center" width="100%">
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
 <p align="center" 
- <p align="center"><strong> "sunday" , yes .
+ <p align="center"><strong> vaasshhhuuu!!!! 
 </p>
-     <p align="center" width="1000">
-    <img src="https://64.media.tumblr.com/745d3b22af60345a4f8ab90235e27e1d/984fb0ea4d8d92a0-21/s400x600/c1bfa73ffc2228e0790e5baa2c9fe397c33ec065.gifv" > 
+     <p align="center" >
+    <video src="https://github.com/user-attachments/assets/bbf74a5c-f4ab-403b-ad47-9307034874cd"> 
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
