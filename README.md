@@ -2,7 +2,7 @@
 <p align="center" width="100%">
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
 <p align="center" 
- <p align="center"><strong> vaasshhhuuu!!!! 
+ <p align="center"><strong> "Its a date, Mydeimos."
  </p>
      <p align="center" >
     <video src="https://github.com/user-attachments/assets/fa412ba5-ac2b-4784-aaf7-b176d88be99e"> 
