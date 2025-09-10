@@ -2,10 +2,10 @@
 <p align="center" width="100%">
    <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
 <p align="center" 
- <p align="center"><strong> "Oh, my sweet lightkeeper."
+ <p align="center"><strong> "The light, is upon us"
  </p>
      <p align="center" >
-   <img width="1486" height="3072" alt="tumblr_7f491ff0415b9fdfe42ea9f32f0ea4a1_135620d7_2048" src="https://github.com/user-attachments/assets/d35f2601-63c8-4996-bcbd-f1aeff9602ec" />
+<img width="875" height="1220" alt="tumblr_dff231af50b2372f716fad17d4346893_ceca94f7_1280" src="https://github.com/user-attachments/assets/f3f8b5b5-1c09-42c3-abfd-24a21865f1dc" />
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
