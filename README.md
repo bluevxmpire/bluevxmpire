@@ -1,16 +1,17 @@
 
 <p align="center" width="100%">
-   <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=72c1f2"> 
+   <img src="https://komarev.com/ghpvc/?username=NxAou&style=for-the-badge&label=✧✦&color=e2d195"> 
 <p align="center" 
- <p align="center"><strong> "The light, is upon us"
+ <p align="center"><strong> "Because of them, I have never lost my way home."
  </p>
-     <p align="center"><strong> graphics by CriticallyFathering <3
- </p>
-     <p align="center" >
-<img width="2571" height="2090" alt="Titelloses_324_20250909214306" src="https://github.com/user-attachments/assets/06862b24-0809-44dd-a641-98c0ebc56b7e">
+ 
+ 
+     
+<img width="2048" height="1423" alt="tumblr_75fc7e8097692c19abca18aaa70f1e5f_6acadeaf_2048" src="https://github.com/user-attachments/assets/e1373ecd-5ba5-4134-ae7b-6ffe1270639e" />
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
+
 
 
 
