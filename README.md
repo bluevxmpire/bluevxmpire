@@ -7,7 +7,7 @@
  
  
      
-<img width="2048" height="1423" alt="https://files.catbox.moe/gkgsvx.png" />
+<img width="1024" height="751" alt="gkgsvx" src="https://github.com/user-attachments/assets/a5cf12d2-99ff-4244-a00e-5a0259932d99" /> 
      </p>
     <p align="center"><strong> anyway STAMP DUMP  
     </p>
